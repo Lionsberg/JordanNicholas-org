@@ -1,5 +1,3 @@
 # Contact Jordan
 
-Email to come, just text me for now. :)
-
-Looking forward to all that comes next. 
+Thank you for your interest in the message and the movement. If you'd like to connect, please reach out to J@Lionsberg.org. 
