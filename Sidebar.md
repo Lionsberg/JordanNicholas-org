@@ -1,8 +1,9 @@
 [[Spirit]]  
 [[Priorities]]  
 [[Get Involved]]  
-[[Above The Chaos]]  
-[[About]]  
+[[Spread The Word]]  
+[[Above The Chaos]]   
+[[About]]   
 
 ---
 
