@@ -6,4 +6,4 @@
 
 ---
 
-[[Contact Jordan]]  
+[[Join Us]]  
