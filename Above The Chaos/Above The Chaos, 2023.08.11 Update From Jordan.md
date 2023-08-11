@@ -72,4 +72,4 @@ This crucial adjustment will speed the process by forcing citizens to accept or 
 Everything we have discussed around Lionsberg and the Meta Project still needs to happen, and will happen as our transforming Spirit and consciousness impels us towards Unity with God and One Another through Love. 
 ## Call To Action 
 
-If you hope and believe, [[Join Us]] now. 
+If you hope and believe, [[Join The Movement]] now. 

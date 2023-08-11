@@ -6,4 +6,4 @@
 
 ---
 
-[[Join Us]]  
+[[Join The Movement]]  

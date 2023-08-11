@@ -1,1 +1,1 @@
-To get involved, [[Join Us]] and [[Spread The Word]]! 
+To get involved, [[Join The Movement]] and [[Spread The Word]]! 
