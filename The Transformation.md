@@ -1,4 +1,9 @@
+# The Transformation 
+
 The Transformation refers to all we are doing to transform our lives and our world. 
+
+FROM - The Old  
+TO - The New  
 
 As the movement grows and we transform our selves, we will continuously improve our ability to support and empower transformational endeavors in our communities and around the world. 
 
