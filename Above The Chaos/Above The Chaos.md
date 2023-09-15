@@ -13,8 +13,8 @@ The series is hosted on the Lionsberg Wiki at [Above The Chaos by Jordan Nichola
 [Above The Chaos by Jordan Nicholas](https://lionsberg.wiki/lionsberg_wiki_blogs/jordan_nicholas/above_the_chaos)  
 
 **Video Links to Full Episodes**  
-[YouTube Link](https://www.youtube.com/playlist?list=PLLjjoevj7u2YJXdYKAeSxuTL_zs81pSvB) 
-[X / Twitter Link](https://twitter.com/JNicholasOne)
+[YouTube Link](https://www.youtube.com/playlist?list=PLLjjoevj7u2YJXdYKAeSxuTL_zs81pSvB)  
+[X / Twitter Link](https://twitter.com/JNicholasOne)  
 
 **Podcast Links**: 
 
