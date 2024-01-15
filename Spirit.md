@@ -4,7 +4,7 @@ Our Central Animating Spirit is One with the Spirit of the Creator, God, and Chr
 
 ## Intention and Goal 
 
-Our Intention and Goal is One with the Will and Intention of God - for All Creation to develop towards the fullness of its potential and flourish in harmony.      
+Our Intention and Goal is One with the Will and Intention of God - for All Creation to develop towards the fullness of its potential and flourish in harmony. 
 
 ## Mission
 
