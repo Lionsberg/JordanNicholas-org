@@ -12,7 +12,7 @@ Our Mission is the Kingdom of God, on Earth as it is in Heaven.
 
 ## Vision  
 
-Our Vision is the vision of the New World, or World to Come. 
+Our Vision is Heaven on Earth - the Best Possible Future For All.  
 
 ## Battle and Victory   
 
@@ -26,6 +26,8 @@ Our Values are Truth, Love, Justice, Stewardship, Wisdom, Beauty, and Liberty, u
 
 Our Invitation is to All who resonate with the Spirit, Vision, and Values. No one, regardless of background, culture, or belief, who abides by the Spirit will be involuntarily excluded or left behind. 
 
+[[Join The Movement]]  
+
 ## Tolerance  
 
-We do not tolerate betrayal of this Spirit, and will remove anything that does not honor [[The Code]]. 
+We do not tolerate betrayal of the Spirit, Intention, and Values, and will remove anything that does not honor [[The Code]]. 
