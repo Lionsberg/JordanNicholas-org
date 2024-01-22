@@ -2,9 +2,9 @@
 
 Welcome, I am so glad you are here. 
 
-I am seeking a rogue band of passionate, independent, and committed ***Individuals*** who resonate and are willing to sacrifice, take responsibility, and do the hard work required to arise, unite, and ***Become*** a powerful and perpetual ***Force For Good***. 
+We are seeking a rogue band of passionate, independent, and committed ***Individuals*** who resonate and are willing to sacrifice, take responsibility, and do the hard work required to arise, unite, and ***Become*** a powerful and perpetual ***Force For Good***. 
 
-If you resonate and share my passion to seek first the Kingdom of God, vanquish corruption and injustice, and set our society back in proper order, please join the movement by adding your support below. The world needs you. 
+If you resonate and share our passion, please join the movement by adding your support below. The world needs you. 
 
 Welcome to the adventure of a lifetime! 
 
