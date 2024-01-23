@@ -14,5 +14,4 @@ To sign up with a donation and help establish public support for the Mission:
 <script src='https://lionsberg-bloom.kindful.com/embeds/991b40b3-0f60-41fb-9679-b2faa8482284/init.js?type=form' data-embed-id='991b40b3-0f60-41fb-9679-b2faa8482284' data-lookup-type='jquery-selector' data-lookup-value='#kindful-donate-form-991b40b3-0f60-41fb-9679-b2faa8482284'></script> 
 
 To sign up with email only: 
-
 <script src="https://s3-us-west-2.amazonaws.com/bloomerang-public-cdn/lionsberg/.widget-js/76800.js" type="text/javascript"></script>  
